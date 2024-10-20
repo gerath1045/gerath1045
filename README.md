@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gerath1045
+- 👋 Hi, I’m @GlitchMaster
 - 👀 I’m interested in .. Knowalage 
 - 🌱 I’m currently learning ... Linux and much more
 - 💞️ I’m looking to collaborate on ... new projects for Knowlage base 
